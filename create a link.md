@@ -1,0 +1,1 @@
+Link to a new knowledge
